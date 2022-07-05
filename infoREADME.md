@@ -7,3 +7,14 @@ Hi, I'm Xkoop7321, I develop sm64 rom hacks and figured out a lot of non decomp 
 Xkoop7321/Xkoop7321 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+
+
+Use the pull requests on this page for questions / answers
+
+Thx, 
+
+I'm on sm64js here and there
+
+
+I also have a 3ds so if you want my friend code you have to send me yours there and I will answer back.
+
