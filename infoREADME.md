@@ -18,3 +18,9 @@ I'm on sm64js here and there
 
 I also have a 3ds so if you want my friend code you have to send me yours there and I will answer back.
 
+
+
+
+
+Side note: I will make a tutorial of how to get summer 95 mario in non decomp sm64 hacking later on
+
